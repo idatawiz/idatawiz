@@ -11,7 +11,7 @@
 
 - 💬 talk to me about **data,data & data**
 
-- 📫 How to reach me **dipamsarkarz07@gmail.com**
+- 📫 How to reach me **idatawizds@gmail.com**
 - ⚡ Fun fact **I think I am Funny xD!!**
 <h3 align="left">Connect with me:</h3>
 <p align="left">
